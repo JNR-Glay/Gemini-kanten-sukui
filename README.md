@@ -1,1 +1,0 @@
-# Gemini-kanten-sukui
